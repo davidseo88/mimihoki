@@ -10,6 +10,7 @@
     <meta charset="utf-8">
     <meta name="viewport" content="width=device-width,initial-scale=1">
     <meta name="color-scheme" content="light only">
+    <meta name="google-site-verification" content="URRFmq2nb4NRrXSUn3HfybKW-Z2Qe4C73KsuMuNSXbo" />
     <title>MIMIHOKI:  Situs Slot Gacor Hari Ini Link Slot Hoki Mudah Maxwin Terbaik 2025</title>
     <meta property="og:title" content="MIMIHOKI:  Situs Slot Gacor Hari Ini Link Slot Hoki Mudah Maxwin Terbaik 2025">
     <meta name="description" content="Mimihoki adalah link slot gacor hari ini yang berlisensi resmi menyediakan 10 situs slot hoki terbaik gampang menang maxwin terbaru dan terpercaya no 1 pada tahun 2025.">
